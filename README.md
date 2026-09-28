@@ -79,6 +79,6 @@ Actualmente continúo mi formación en Ciencias Computacionales, con interés en
 
 Puedes contactarme mediante:
 
- **Correo:** [idalia3706022@gamil.com]
+ **Correo:** [idalia3706022@gmail.com]
 
  **GitHub:** @IdAle3
